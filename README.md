@@ -1,1 +1,0 @@
-# Turner_ATS_Universal_Resume_Checker
